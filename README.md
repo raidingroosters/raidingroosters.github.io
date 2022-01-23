@@ -1,2 +1,0 @@
-# raidingroosters.github.io
-NFT
